@@ -9,5 +9,5 @@ Sua %    ִ   ࣪   ⋆    ٫٫ ⌞Dagger⌝  ࿐   ʚ  The sunshine girl is sle
 
  ◡  ZOMST ◝ AMPH
 
- 𓏏𓏏 Straw-page will be added at some point. 𝛏
+ 𓏏𓏏 Rentry in bio. 𝛏
 ![image alt](https://cdn.discordapp.com/attachments/1382439081249734821/1556035264722243704/Untitled16_20261003160829.png?backend=b2&ex=6ac2b244&is=6ac160c4&hm=153c114c09731ce5d9ff8d30c5142a7145ef3f486171c4f4bd17ac4ccf290f3d&)
