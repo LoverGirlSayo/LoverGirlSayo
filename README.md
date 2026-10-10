@@ -1,4 +1,4 @@
-![image alt]([https://cdn.discordapp.com/attachments/1382439081249734821/1556033624166375545/Untitled15_20261003160141.png?backend=b2&ex=6ac2b0bd&is=6ac15f3d&hm=4b23accb1846dc756d74cc9bec5330cef0f048e29d6065235a1260435f6707d6&]
+![image alt](https://cdn.discordapp.com/attachments/1382439081249734821/1558506858027942028/Untitled15_20261003160141.png?ex=6acbb01e&is=6aca5e9e&hm=6135594a5e81ffcb91fbc890cd7a216e0d466d66880ecef2b09ab4f4fccf5a48&)
 Sua %    ִ   ࣪   ⋆    ٫٫ ⌞Dagger⌝  ࿐   ʚ  The sunshine girl is sleeping.  ۫  .   ˖  
 
       e ₊ ‹ Gracefully taken 𝟹
@@ -9,4 +9,4 @@ Sua %    ִ   ࣪   ⋆    ٫٫ ⌞Dagger⌝  ࿐   ʚ  The sunshine girl is sle
  ◡  ZOMST ◝ AMPH
 
  𓏏𓏏 Rentry is in the websites section of profile. 𝛏
-![image alt](https://cdn.discordapp.com/attachments/1382439081249734821/1556035264722243704/Untitled16_20261003160829.png?backend=b2&ex=6ac2b244&is=6ac160c4&hm=153c114c09731ce5d9ff8d30c5142a7145ef3f486171c4f4bd17ac4ccf290f3d&)
+![image alt](https://cdn.discordapp.com/attachments/1382439081249734821/1556035264722243704/Untitled16_20261003160829.png?backend=b2&ex=6acb4404&is=6ac9f284&hm=09882ffd90e28aff51fbc9ff45038da5b6aafd765b3e2e25f28d5443970d78cd&)
